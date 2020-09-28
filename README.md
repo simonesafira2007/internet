@@ -36,7 +36,7 @@
 
    ## Curiosidade sobre a internet
    ### Para pessoas que não desgrudam do celular até mesmo na hora de ir ao banheiro, existem na China hospitais específicos para internação e tratamento para viciadas em internet.
-
+<b>
                                             
-                                            Publicado por: <strong><em>Inácia Simone<em></strong>
+                                                               ## Publicado por: Inácia Simone
 
