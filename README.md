@@ -38,5 +38,5 @@
    ### Para pessoas que não desgrudam do celular até mesmo na hora de ir ao banheiro, existem na China hospitais específicos para internação e tratamento para viciadas em internet.
 <b>
                                             
-                                                               ## Publicado por: Inácia Simone
+                                                                    Publicado por: Inácia Simone
 
